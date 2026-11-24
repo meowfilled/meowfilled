@@ -13,4 +13,4 @@
 
 
 
-[@pt-hall-of-fans](https://github.com/pt-hall-of-fans) - Biggest Fan of Pr3typrincess ♡
+[@pt-hall-of-fans](https://github.com/pt-hall-of-fans) - Biggest Fan of Pr3typriincess ♡
