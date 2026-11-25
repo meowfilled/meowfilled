@@ -1,5 +1,8 @@
 <img width="400" height="271" alt="_ (6)" src="https://github.com/user-attachments/assets/0fed3125-d663-43e6-8ede-1d177db77e04" />
 
+ 
+ ↑ me...
+
 [out of character atabook](https://fishcakes.atabook.org/)ㅤㅤ₊ㅤㅤ[in character atabook](https://prettyworld.atabook.org/)
 
 - - -
